@@ -1,4 +1,4 @@
-# 
+# Nativo 1Password predefinições para Mac OS | Melhor 1Password predefinições para PC Windows. Com suporte a multi-dispositivos e proteção de e-mail — otimizado para máximo desempenho em cada plataforma.
 
 
 
